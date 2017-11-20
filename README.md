@@ -42,10 +42,17 @@ Curriculum vitae -  Translations IT Documents
    ---------------------------------------
 
 CIndicator Chat https://t.me/cindicator_es
+
 CIndicator News https://t.me/cindicatoresp
+
 Arcona - https://t.me/Arcona_SP
+
 Baab - https://t.me/babb_SP
+
 Loomia - https://t.me/Loomia_es
+
 EfL - https://t.me/efl_Es
+
 HDac - https://t.me/HDAC_es
+
 BankEx - https://t.me/joinchat/BXsu8kwndz19jsqutHMBFw
